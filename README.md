@@ -49,7 +49,7 @@
 17. The Birth of New India  By Annie Besant</br>
                 <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(17).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
                 
-18 	River of Smoke By Amitav Ghosh</br>
+18. River of Smoke By Amitav Ghosh</br>
                 <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(18).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
                 
 19. Countdown By Amitav Ghosh</br>
