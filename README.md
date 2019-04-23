@@ -45,3 +45,59 @@
                 
 16. The White Tiger By Aravind Adiga</br>
                 <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(16).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+17. The Birth of New India  By Annie Besant</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(17).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+18 	River of Smoke By Amitav Ghosh</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(18).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+19. Countdown By Amitav Ghosh</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(19).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+20. The Algebra of Infinite Justice By Arundhati Roy</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(20).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+21. Development as Freedom By Amartya Sen</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(21).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+22. Fasting, Feasting By Anita Desai</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(22).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+23. Fire On the Mountain By John Maclean</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(23).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+24. In Custody By Anita Desai</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(24).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+25. Last Man in Tower By Aravind Adiga</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(25).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+26. The Calcutta Chromosome By Amitav Ghosh</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(26).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+27. God of Small Things By Arundhati Roy</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(27).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+28. The Hungry Tide By Amitav Ghosh</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(28).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+29. Flood of Fire By Amitav Ghosh</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(29).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+30. The Glass Palace By Amitav Ghosh</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(30).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+31. The Immortals of Meluha By Amish Tripathi</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(31).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+32. In an Antique Land By Amitav Ghosh</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(32).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+                
+                
+                
+                
+                
+                
+                
