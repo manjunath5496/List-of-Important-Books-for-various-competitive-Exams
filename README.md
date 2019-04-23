@@ -188,10 +188,92 @@
                 <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(63).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
                 
 64. Two States By Chetan Bhagat</br>
-                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(64).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(64).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br> 
                 
+65. Five Point Someone By Chetan Bhagat</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(65).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
                 
+66. One Indian Girl By Chetan Bhagat</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(66).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
                 
+67. One Night at the Call Centre By Chetan Bhagat</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(67).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
                 
+68. Revolution 2020 By Chetan Bhagat</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(68).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+69. The 3 Mistakes of My Life By Chetan Bhagat</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(69).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
                 
+70. The Rime of the Ancient Mariner By Samuel Taylor Coleridge</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(70).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+71. The Nadars &minus; A Portrayal</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(71).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+72. Indian Epigraphy By Richard Salomon</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(72).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+73. Sons and Lovers By D.H.Lawrence</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(73).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+74. Races and Cultures of India By Dhirendra Nath Majumdar</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(74).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+75. Robinson Crusoe By Daniel Defoe</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(75).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+76. Poverty and un-British rule in India By Dadabhai Naoroji</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(76).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+77. Divine Comedy By Dante Alighieri</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(77).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+78. Infinite Jest By David Foster Wallace</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(78).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+79. Around the World in 80 Days By Jules Verne </br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(79).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+80. City of Joy By Gerald Brach</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(80).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+81. Freedom at Midnight  By Larry Collins</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(81).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+82. Crime and Punishment By Dostoevsky</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(82).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+83. Wings of Fire By A.P.J. Abdul Kalam</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(83).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+84. Ignited Minds – Unleashing the power within India By A.P.J. Abdul Kalam</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(84).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+85. My Journey: Transforming Dreams into Actions By A.P.J. Abdul Kalam</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(85).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+86. India 2020 By A.P.J. Abdul Kalam</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(86).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+87. The Hindu view of life By Sarvepalli Radhakrishnan</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(87).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+88. A Passage to India By E. M. Forster</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(88).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+89. Relativity: The Special and General Theory By Albert Einstein</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(89).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+90. Old Man and the Sea By Ernest Hemingway</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(90).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+91. The Decline and Fall of the Roman Empire By Edward Gibbon</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(91).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
+                
+92. Murder in the Cathedral By T.S. Eliot</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(92).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+93. India Divided By Dr.Rajendra Prasad</br>
+                <a href="https://github.com/manjunath5496/Medicinal-Chemistry/blob/master/ce(93).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>
                 
