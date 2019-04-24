@@ -333,6 +333,79 @@
 112. Quick General Knowledge</br>
                 <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(112).rar" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                     
                 
+113. Tryst with Destiny</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(113).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+114. My Country My Life By Lal Krishna Advani</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(114).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
                 
+115. Diary of a Wimpy Kid By Jeff Kinney </br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(115).rar" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>  
+ 
+116. The Girl on the Train By Paula Hawkins</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(116).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+117. The Accidental Prime Minister By Sanjaya Baru</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(117).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                  
+                
+118. Narendra Modi: A Political Biography By Andy Marino</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(118).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+119. Birds of Banni Grassland </br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(119).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+                
+120. Playing It My Way By Sachin Tendulkar</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(120).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                     
+                
+121. Joseph Anton: A Memoir By Salman Rushdie </br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(121).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+122. Unaccustomed Earth By Jhumpa Lahiri</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(122).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br> 
+                
+123. Fifty Shades Trilogy By E.L. James </br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(123).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+                
+124. I Am Malala: The Girl Who Stood Up for Education and Was Shot by the Taliban</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(124).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                     
+                
+125. I Do What I Do By Raghuram Rajan </br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(125).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+126. Interpreter Of Maladies By Jhumpa Lahiri</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(126).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                 
+                
+127. Neither a Hawk nor a Dove: An insider's account of Pakistan's foreign policy</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(127).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                     
+                
+128. Sita: Warrior of Mithila By Amish Tripathi </br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(128).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+129. The Lives of Others By Neel Mukherjee</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(129).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                    
+                
+130. The Narrow Road to the Deep North By Matsuo Basho </br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(130).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+131. The Red Sari By Javier Moro</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(131).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                    
+                 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
                 
                 
