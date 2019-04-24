@@ -313,12 +313,25 @@
 105. The Geography and Ecology Compendium</br>
                 <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(105).rar" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                 
                 
-                         
+106. 1700+ Questions on Indian Polity for all competitive exams in india</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(106).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+107. Complete 7300+ General Studies </br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(107).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                             
+108. The General Science Compendium</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(108).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+109. High Speed System of Basic Arithmetic </br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(109).pdf" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                  
                 
+110. The General Science Compendium</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(110).rar" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
+
+111. Objective English for Competitive Examination </br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(111).rar" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                
                 
-                
-                
-                
+112. Quick General Knowledge</br>
+                <a href="https://github.com/manjunath5496/List-of-Important-Books-for-various-competitive-Exams/blob/master/ce(112).rar" target="_blank" style="text-decoration:none"> <font color="blue"> <center> Download</center></font> </a></br>                     
                 
                 
                 
